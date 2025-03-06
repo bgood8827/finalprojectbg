@@ -1,2 +1,2 @@
 # finalprojectbg
-As of now, I'm not sure what my final project will be about.
+Out of Michael Jordan, Kobe Bryant, and LeBron James, who had the greatest statistical peak?
